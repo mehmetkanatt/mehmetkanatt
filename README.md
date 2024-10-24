@@ -6,7 +6,7 @@ Hi! 🤘
 
 - 🤘 I love Metal music, especially: Gojira, Meshuggah, Dagoba, Behemoth, Septicflesh, Deathspell Omega
 - 🐋 I love whales (especially the [flying ones](https://www.youtube.com/watch?v=xRIVJ7aLHTE), [52-hertz](https://en.wikipedia.org/wiki/52-hertz_whale) and who [carry containers](https://www.docker.com/))
-- Check out my notebook: https://mehmetka.com
+- Check out my notebook: https://mehmetkanat.com
 
 ![heavy-trip-children-of-the-sea](https://media.giphy.com/media/2QEomdgkDLIfNzOAhN/giphy-downsized-large.gif?style=centerme)
 
